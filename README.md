@@ -1,6 +1,6 @@
-# Future-ready-final-project
+## Future-ready-final-project
 
-this is my final Of the Future ready talent internship project. 
+# This is my final Of the Future ready talent internship project. 
 
 
 
