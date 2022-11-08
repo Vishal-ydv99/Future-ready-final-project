@@ -15,6 +15,10 @@
 𝐒𝐞𝐫𝐯𝐢𝐜𝐞 𝐏𝐨𝐫𝐭𝐚𝐥
 ![image](https://user-images.githubusercontent.com/83835190/200541890-2d25bfb5-73fe-4eab-bca0-bee940e567cc.png)
 
+𝐀𝐛𝐨𝐮𝐭 𝐬𝐞𝐜𝐭𝐢𝐨𝐧
+![image](https://user-images.githubusercontent.com/83835190/200542498-f6be19ac-cb04-49b4-8b5e-289835cacae9.png)
+
+
 
 
 
