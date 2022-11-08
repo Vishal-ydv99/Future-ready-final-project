@@ -18,6 +18,9 @@
 𝐀𝐛𝐨𝐮𝐭 𝐬𝐞𝐜𝐭𝐢𝐨𝐧
 ![image](https://user-images.githubusercontent.com/83835190/200542498-f6be19ac-cb04-49b4-8b5e-289835cacae9.png)
 
+![image](https://user-images.githubusercontent.com/83835190/200542877-c1af2287-bb0c-45f8-beb3-d1d4cee1b861.png)
+
+
 
 
 
